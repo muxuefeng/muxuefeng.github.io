@@ -1,3 +1,3 @@
-## 北京星好科技有限公司
-### 经营范围
-### 技术支持与联系
+## Beijing Xinghao Technology Co.Ltd 
+### About
+### Support
